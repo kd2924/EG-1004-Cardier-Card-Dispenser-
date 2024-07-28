@@ -11,8 +11,7 @@ Pictures and Videos of Card Dispenser:
 
 
 
-Presentation Video:
-https://www.youtube.com/watch?v=aiLaYLSRkhM&ab_channel=NyaemTime
+
 
 
   
