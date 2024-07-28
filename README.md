@@ -5,7 +5,8 @@ I collaborated with a team to produce the "Cardier Automatic Card Dispenser" tha
 Pictures and Videos of Card Dispenser:
 ![IMG_1758](https://github.com/user-attachments/assets/3eb798b2-6aaa-4227-8b77-20aae82ca8ed)
 https://github.com/user-attachments/assets/4c909a62-7c09-428d-9d03-a5fc14fd71b2
-<img width="200" alt="Screenshot 2024-07-22 at 3 24 46 PM" src="https://github.com/user-attachments/assets/a13a1830-f375-44ff-9e30-13b8d9b332cb)">
+![IMG_6895](https://github.com/user-attachments/assets/e2ee3976-5a37-4bb4-913a-d7bcef2bc012)
+
 
 
 
